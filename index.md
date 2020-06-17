@@ -12,3 +12,8 @@ Deadpool (Wade Winston Wilson) is a fictional character appearing in American co
 * Immortality
 * Master Martial Artist
 * Disease Immunity
+
+As Wade Wilson said:
+> Here I am.
+
+<img src="https://crops.giga.de/31/93/41/8a74b82385b2bd5d92dc5a2382_YyAxMDg1eDYxMCsxMzMrMTkCcmUgNTAwIDI4MAMzMzg0MjViZGRhOA==.jpg"/>
